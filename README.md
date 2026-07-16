@@ -16,6 +16,6 @@ i attack among us only,,,
 
 
 
-Art fight: artfight.net/~Jackson2316AU
+Art fight: artfight.net/~Jackson2316AU (currently focusing on drawing my ocs)
 
 Strawpage: errsatyellow.straw.page
